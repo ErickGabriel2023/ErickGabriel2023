@@ -1,4 +1,4 @@
-## Hey Guys , I'm Erick😁
+## Hey Guys , I'm Erick👋😁
 
  <div>
    <a href="https://github.com/ErickGabriel2023">
